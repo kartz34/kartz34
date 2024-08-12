@@ -7,7 +7,6 @@
 
 - 📫 How to reach me: **kartikgupta034@gmail.com**
 
-- ⚡ Fun fact: **I like cat memes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
